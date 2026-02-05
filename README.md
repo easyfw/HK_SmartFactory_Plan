@@ -1,1 +1,0 @@
-# HK_SmartFactory_Plan
